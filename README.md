@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Celest77
 - 👀 I’m interested in transitioning careers. Teaching to tech. 
 - 🌱 I’m currently learning data science with codecademy. 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on projects and portfolios. 
 - 📫 How to reach me through email acrust77@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: I love yoga :)
